@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Jarryd O'Neill
+## Hi👋 I'm Jarryd O'Neill
 
 🎓 **Computer Science Graduate**
 
